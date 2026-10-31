@@ -1,4 +1,4 @@
-# Hi, I'm GrullmanHetche 👋
+# Hi, I'm Yoohyun 👋
 
 I’m interested in the connection between people, data, and the interfaces we use every day.
 
